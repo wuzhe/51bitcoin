@@ -1,4 +1,7 @@
-51bitcoin
-=========
+domain for sale
+===============
 
-51bitcoin.com web pages
+- bobo.me
+- 51bitcoin.com 
+
+contact: wu (at) madk.org
